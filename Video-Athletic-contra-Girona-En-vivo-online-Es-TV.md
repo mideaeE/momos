@@ -5,11 +5,9 @@
 Athletic Bilbao vs. Girona en vivo: formaciones confirmadas, hora y TV
 Athletic Bilbao y Girona se enfrentarán por La Liga de España el sábado 8 de febrero. El partido se jugará a las 12:15hs. Seguilo en vivo.
 
-[🔴 HAGA CLIC 🌐==►► Ver ahora](https://streamespn.org/laliga?artv)
+[🌐 CLICK HERE 🟢==►► WATCH NOW](https://cutt.ly/frqoNRnE)
 
-[🔴 HAGA CLIC 🌐==►► Ver ahora](https://streamespn.org/laliga?artv)
-
-[![MIRA LOS VIDEOS](https://i.imgur.com/dJHk4Zq.gif)](https://streamespn.org/laliga?artv)
+[🔴 CLICK HERE 🌐==►► Download Now](https://cutt.ly/frqoNRnE)
 
 Seguí en vivo todas las incidencias del partido entre Athletic Bilbao vs. Girona correspondiente a la fecha 23 de La Liga de España. El encuentro en directo será televisado en Disney+ Premium y ESPN 2 y podrá ser visto a partir de las 12:15hs. en el estadio San Mamés, en Bilbao el sábado 8 de febrero.
 
