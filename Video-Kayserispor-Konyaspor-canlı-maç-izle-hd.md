@@ -4,11 +4,11 @@
 
 A.KONYASPOR - İ.M.KAYSERİSPOR. CANLI MAÇ YAYINI SAAT 16:00'DA. Yükleniyor. KAMPANYALAR ABONELİK KANALLAR YAYIN AKIŞI.. Canlı Yayın
 
-[🔴 TIKLAYIN 🌐==►► Şimdi İzle](https://streamespn.org/super-lig?artv)
+[🌐 CLICK HERE 🟢==►► WATCH NOW](https://cutt.ly/te57wshS)
 
-[🔴 TIKLAYIN 🌐==►► Şimdi İzle](https://streamespn.org/super-lig?artv)
+[🔴 CLICK HERE 🌐==►► Download Now](https://cutt.ly/te57wshS)
 
-[![VİDEOLARI İZLE](https://streamespn.org/super-lig?artv)
+[![WATCH Videos](https://i.imgur.com/dJHk4Zq.gif)](https://cutt.ly/te57wshS)
 
 Kayseri Spor Kulübü Konyaspor Kulübü canlı izle yayın Canlı Yayın 8 Şubat 2025
 
