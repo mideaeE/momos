@@ -4,11 +4,11 @@
 
 SAHA İÇİ YERLEŞİMDE DEĞİŞİKLİKLER OLABİLİR" | Alanyaspor - Fenerbahçe, Szymanski & Talisca, Cordova
 
-[🌐 TIKLAYIN 🟢==►► ŞİMDİ İZLE](https://streamespn.org/super-lig?artv)
+[🌐 CLICK HERE 🟢==►► WATCH NOW](https://cutt.ly/te57wshS)
 
-[🔴 TIKLAYIN 🟢==►► ŞİMDİ İZLE](https://streamespn.org/super-lig?artv)
+[🔴 CLICK HERE 🌐==►► Download Now](https://cutt.ly/te57wshS)
 
-[![VİDEOLARI İZLE](https://i.imgur.com/dJHk4Zq.gif)](https://streamespn.org/super-lig?artv)
+[![WATCH Videos](https://i.imgur.com/dJHk4Zq.gif)](https://cutt.ly/te57wshS)
 
 Trendyol Süper Lig’de zirve takibini sürdüren sarı-lacivertliler, 23. hafta mücadelesinde Alanyaspor’a konuk oluyor. Gain Park Stadyumu’nda oynanacak
  
